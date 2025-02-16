@@ -21,7 +21,7 @@
 💡 Working on an exciting **data science project**? Need a **data-driven perspective**?  
 Let’s connect and build something impactful together!  
 
-📬 **Reach me on [LinkedIn](#)**  
+📬 **Reach me on [LinkedIn](https://www.linkedin.com/in/aryan-paritosh/)**  
 
 
 <!---
